@@ -1,0 +1,1 @@
+# dinamica-dnc-day6
